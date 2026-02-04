@@ -9,6 +9,6 @@ All checklist data is stored locally on your device and never leaves your device
 If you contact us for support, your email address will only be used to respond to your request.
 
 For questions about this policy, contact:
-simcheck.support@gmail.com
+uhurupsn@gmail.com
 
 Last updated: February 2026
